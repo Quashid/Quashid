@@ -17,7 +17,7 @@
 
 - 💬 Ask me about **anything you feel like!**
 
-- ⚡ Fun fact **Coffee over Chai **
+- ⚡ Fun fact **Coffee over Chai**
 
 <br>
 
